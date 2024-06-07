@@ -1,1 +1,1 @@
-world bank organisation
+world bank organization
